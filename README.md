@@ -5,7 +5,7 @@
 <p align="center">
   <b>star . 🧊</b> 
   <br>
-  <sub>"we share blood, but we are not brothers"</sub>
+  <sub>"we share blood, we are not brothers"</sub>
 </p>
 
 <p align="center">
@@ -15,7 +15,9 @@
 <p align="center">
   <sub>i'm on pt sometimes</sub>
   <br>
-  <sub>likes . art , animation , transformers , mewgenics , mortal kombat</sub>
+  <sub>likes . art , animation , transformers , mewgenics , mortal kombat , minesweeper plus </sub>
   <br>
   <sub>int . fandoms , wanting to chat</sub>
+  <br>
+  <sub>dni . proshippers , doubles of me (irls and fickins) </sub>
 </p>
